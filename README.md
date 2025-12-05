@@ -5,12 +5,18 @@ pinterest : https://pin.it/60Fsoa958
 ----------------------------------------------------------------------------------------------------------
 
 hi, i'm azurark! 
+/
 you can find me near docks or in the forsaken area...
-PLEASE C+H I would really appreciate it
-pls decorate my tree I want 2 read your guys' messgs on christmas!!
+/
+PLEASE C+H i would really appreciate it
+/
+pls decorate my tree i want 2 read your guys' messgs on christmas!!
+/
 w2i mainly 
-i loves you guys ^-^
+/
+i love roleplays
+
+----------------------------------------------------------------------------------------------------------
 
 
-<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/f2d2bc4d-60b8-4240-989b-98e7f9d34a2b" /> Wet
-                                                                                                                                  dazey and the scouts
+<img width="200" height="50" alt="image" src="https://github.com/user-attachments/assets/ead70b28-880b-4d74-865d-e67d7bd3db8c" />
